@@ -1,0 +1,2 @@
+# JepangStadyApps
+MGForUseTostudyJepangGrammerAndWords
